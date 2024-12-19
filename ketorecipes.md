@@ -15,16 +15,16 @@
 Итак, на 1.5 кг куриных бедер без кожи, нарезанных на кусочки для шашлыка, берем:
 
     4 зубчика чеснока - выдавливаем или растираем ножом в пасту
-    2 ст.л. тертого имбиря (вот это и чеснок можно заменить готовой чесночно-имбирной пастой - продается в азиатских и индийских супермаркетах)
+    2 ст.л. тертого имбиря
     1 ч. л. соли
     1 ч. л. молотого перца чили, или острой паприки
-    3-4 ст. л. лимонного сока
+    3-4 ст. л. лимонного сока (можно целый лимон, и его цедру туда же)
     150-200 мл обычного греческого йогурта (само собой, безо всяких добавок, ага? 🙂 )
-    1 ч. л. смеси гарам-масала
+    1 ст. л. смеси гарам-масала
     1 ч. л. молотой куркумы (turmeric)
     2 ч. л. молотой зиры (cumin)
 
-Маринование в два этапа. Первый - смешиваем чеснок, имбирь, соль, чили и лимонный сок. Усе это безобразие добавляем к курице, хорошо перемешиваем и оставляем на полчасика в холодильнике.
+Маринование в два этапа. Первый - смешиваем чеснок, имбирь, соль, чили и лимонный сок. Все это безобразие добавляем к курице, хорошо перемешиваем и оставляем на полчасика в холодильнике.
 
 Второй - вытаскиваем, добавляем йогурт, гарам-масала и куркуму, перемешиваем и... Правильно! В холодильник на 3-4 часа.
 
@@ -101,27 +101,50 @@
 Когда картошка дошла до готовности, тонкой струйкой, помешивая, вливаем заправку и варим ещё примерно пять-десять минут.
 да, вы не ослышались. Сметана варится в супе. Это ещё одна из распространённых особенностей польской кухни.
 
+(other recipe of this https://polishfeast.com/horseradish-soup/)
 
+## Polish White Sausages in Horseradish Sause
+(Origin -- https://polishfeast.com/polish-white-sausage-in-horseradish-sauce/)
 
-I wish I had known this great Romanian recipe before 🇷🇴 Just grate sausage❗️
-Grate 150 grams of sausage
-Grate 6 potatoes
-Fill the potatoes with water
-Parsley
-3 eggs
-Salt and pepper
-Dried garlic
-Remove the water from the potatoes
-2 tablespoons of potato starch
-Add the eggs and stir
-Frying oil
-Lay out half of the potatoes
-Tomato paste
-Lay out the sausage
-Green onions
-Gouda cheese
-Lay out 2 pieces of potatoes
-Cook for 10 minutes under the lid
+Ingridients:
+ * White Sausage (Biała Kiełbasa): The main protein, providing a savory and slightly garlicky flavor.
+ * Horseradish: Adds a sharp and tangy kick to the sauce. I recommend using this homemade Traditional Polish horseradish!
+ * Cream: Creates a rich and smooth sauce base.
+ * Onion: Adds sweetness and depth to the sauce.
+ * Butter: Used for sautéing and adding richness to the sauce.
+ * Flour: Helps to thicken the sauce.
+ * Salt and Pepper: Basic seasonings to enhance the overall flavor.
+ * Parsley: Optional for garnish, adding a fresh, green touch.
+
+Instructions:
+ * Cook Sausage: In a large skillet, cook the white sausages over medium heat until browned and cooked through, about 10-15 minutes. Remove sausages from the skillet and set aside.
+ * Sauté Onion: In the same skillet, melt the butter over medium heat. Add the chopped onion and sauté until softened and translucent, about 5 minutes.
+ * Make Sauce: Sprinkle the flour over the onions and stir well to combine. Cook for 1-2 minutes to eliminate the raw flour taste.
+ * Add Cream and Horseradish: Gradually whisk in the heavy cream, followed by the horseradish. Bring the mixture to a simmer, stirring constantly until the sauce thickens, about 5 minutes.
+ * Season and Combine: Season the sauce with salt and pepper to taste. Return the cooked sausages to the skillet, spooning the sauce over them to coat. Simmer for an additional 5 minutes to allow the flavors to meld.
+ * Serve: Garnish with fresh parsley if desired. Serve hot with mashed potatoes, boiled potatoes, or crusty bread
+
+## I wish I had known this great Romanian recipe before 🇷🇴 Just grate sausage❗️
+(didn't tried yet, stolen from someone's facebook)
+
+ * Grate 150 grams of sausage
+ * Grate 6 potatoes
+ * Fill the potatoes with water
+ * Parsley
+ * 3 eggs
+ * Salt and pepper
+ * Dried garlic
+ * Remove the water from the potatoes
+ * 2 tablespoons of potato starch
+ * Add the eggs and stir
+ * Frying oil
+ * Lay out half of the potatoes
+ * Tomato paste
+ * Lay out the sausage
+ * Green onions
+ * Gouda cheese
+ * Lay out 2 pieces of potatoes
+ * Cook for 10 minutes under the lid
 
 ## курица с перцем чили и чечевицей. 
 (источник https://dzen.ru/a/ZNskMqs7kVvgCcBB)
